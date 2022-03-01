@@ -1,0 +1,1 @@
+poner ingredientes como van y luego cocinar y terminar listo
